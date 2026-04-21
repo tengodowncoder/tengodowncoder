@@ -30,5 +30,5 @@
 
 ## 📫 Contact
 
-* LinkedIn:
+* LinkedIn: https://www.linkedin.com/in/redzuan-charles/
 * Email: redzuanchrls@gmail.com
